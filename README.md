@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @izzthewizz"yISRel intwaumeila Hendryx
+- 👋 Hi, I’m @izzthewizz"yisrael intwaumeila Hendryx
 - 👀 I’m interested in ... tech- big on news and current events. personal hobbies huge car guy fishing and hunting and all outdoorsmanship
 - 🌱 I’m currently learning ... cybersecurity at the university of oregon through there cyber bootcamp
 - 💞️ I’m looking to collaborate on ... literally anything!! im looking to get better at scripting and creating firewall and diffrent firewall rules
